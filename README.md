@@ -1,1 +1,1 @@
-# Group3-Project
+# Group 3 Project - American Tycoon
